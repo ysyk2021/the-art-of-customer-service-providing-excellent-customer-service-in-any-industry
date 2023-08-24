@@ -1,5 +1,3 @@
-Techniques for Cultivating a Customer Service Mindset
-================================================================
 
 In order to provide excellent customer service, it is essential to cultivate a customer service mindset within your organization. This chapter will explore various techniques and strategies that can help foster a customer-centric culture and mindset among your employees.
 

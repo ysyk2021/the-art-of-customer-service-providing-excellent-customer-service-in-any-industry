@@ -1,5 +1,3 @@
-Identifying Customer Service Technologies and Resources
-===================================================================
 
 In today's digital era, customer service is greatly influenced by technology. This chapter will explore various technologies and resources that can enhance your organization's customer service capabilities. By leveraging these tools effectively, you can improve customer satisfaction, streamline processes, and stay ahead of the competition.
 

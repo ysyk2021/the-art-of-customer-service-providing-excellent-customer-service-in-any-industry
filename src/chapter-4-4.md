@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-======================================
 
 In this chapter, we will explore the importance of addressing limiting beliefs in the pursuit of providing excellent customer service. Limiting beliefs can hinder your ability to deliver exceptional experiences to customers, and by identifying and overcoming them, you can elevate your customer service skills.
 

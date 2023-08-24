@@ -1,5 +1,3 @@
-Using Technology to Enhance Customer Service Experiences
-===================================================================
 
 Technology plays a vital role in shaping and transforming the customer service landscape. In this chapter, we explore the various ways in which organizations can leverage technology to enhance customer service experiences across any industry.
 

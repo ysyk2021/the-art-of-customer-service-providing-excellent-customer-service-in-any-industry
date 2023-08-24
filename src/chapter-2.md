@@ -1,5 +1,3 @@
-Chapter 2: Defining Customer Service
-====================================
 
 Customer service is a critical component of any successful business. In this chapter, we will explore an overview of customer service, understanding the science behind customer service, and assessing your personal approach to customer service.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 Customer service is a critical component of any successful business. It involves providing support and assistance to customers before, during, and after a purchase or interaction with a business. Understanding the science behind customer service, including emotional intelligence, active listening skills, problem-solving abilities, effective communication skills, empathy, and compassion, is essential for providing exceptional customer experiences. Assessing your personal approach to customer service can help you identify areas for improvement and develop a plan for providing outstanding customer service.
-
 

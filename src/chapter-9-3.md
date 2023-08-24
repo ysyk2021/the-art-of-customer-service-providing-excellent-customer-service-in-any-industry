@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==============================================================================================
 
 Technology has revolutionized the way businesses provide customer service. However, it's essential to ensure that technology is accessible and inclusive for all customers. In this chapter, we will explore how to leverage technology for customer service while fostering accessibility and inclusivity.
 

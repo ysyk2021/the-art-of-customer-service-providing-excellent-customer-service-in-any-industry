@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Measuring the results of customer service efforts is critical for continuous improvement and success in any industry. In this chapter, we will explore how to track progress, reflect on experiences, learn continuously, and adapt to changes in the industry.
 

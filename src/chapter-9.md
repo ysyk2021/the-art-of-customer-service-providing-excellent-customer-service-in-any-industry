@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Customer Service
-=====================================================
 
 Leveraging technology is essential for providing excellent customer service in today's digital age. In this chapter, we will explore how to identify customer service technologies and resources, use technology to enhance customer service experiences, foster accessibility and inclusivity, and avoid information overload.
 

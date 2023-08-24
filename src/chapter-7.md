@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Customer Service
-==================================================
 
 Resistance to customer service can be a significant obstacle for businesses looking to provide exceptional customer experiences. In this chapter, we will explore common sources of resistance to customer service, strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

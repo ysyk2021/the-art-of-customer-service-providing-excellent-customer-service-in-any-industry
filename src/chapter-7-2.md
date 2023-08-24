@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-==========================================================
 
 In this chapter, we will explore strategies for overcoming resistance when implementing customer service initiatives. Resistance to change or new approaches can hinder progress and limit the effectiveness of your customer service efforts. By understanding and addressing resistance, you can foster a culture that embraces and supports exceptional customer service.
 

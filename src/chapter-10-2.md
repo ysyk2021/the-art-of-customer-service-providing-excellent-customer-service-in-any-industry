@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================
 
 Reflection and self-evaluation are critical components of learning and improving in customer service. In this chapter, we will explore the importance of reflection and self-evaluation, and strategies for implementing them into your customer service practices.
 

@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-==========================================
 
 Providing excellent customer service requires ongoing improvement and development. One of the most effective ways to enhance customer service skills is to utilize feedback and coaching. In this chapter, we will explore how feedback and coaching can be invaluable tools for improving customer service in any industry.
 

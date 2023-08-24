@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is critical for businesses looking to provide exceptional customer experiences. In this chapter, we will explore how to track progress and measure results to improve customer service.
 

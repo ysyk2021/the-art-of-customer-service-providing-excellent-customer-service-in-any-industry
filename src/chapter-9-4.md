@@ -1,5 +1,3 @@
-Avoiding Information Overload
-====================================================================================
 
 Technology has revolutionized the way businesses provide customer service. However, with the abundance of information available through technology, it can be easy to become overwhelmed and lose sight of the customer's needs. In this chapter, we will explore how to leverage technology for customer service while avoiding information overload.
 
