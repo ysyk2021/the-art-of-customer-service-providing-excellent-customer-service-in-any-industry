@@ -8,3 +8,7 @@ Drawing on real-life examples and case studies, "The Art Of Customer Service" of
 By mastering the art of customer service, businesses can not only increase customer satisfaction and retention rates but also differentiate themselves from competitors and build a loyal customer base. So don't miss out on the opportunity to improve your customer service skills and take your business to the next level with "The Art Of Customer Service".
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
